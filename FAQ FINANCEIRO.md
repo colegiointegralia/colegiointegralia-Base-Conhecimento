@@ -4,18 +4,6 @@ Intruções para peguntas feita com frenquência , seguir o passa fielmente para
 
 ---
 
-## Disposições Gerais sobre o Colégio (Colégio Integral)
-
-- Site: https://integralweb.com.br/ 
-
-- Instagram: https://www.instagram.com/colegiointegralweb/
-
-- Endereço: Rua Fernando Menezes de Góes, 570 - Pituba, Salvador - BA, 41820-010
-
-- Telefone: (71) 2101-5000
-
---
-
 ## Peguntas Referentes a TOVS
 
 ### Como acessar o Portal Totvs?
